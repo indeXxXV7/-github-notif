@@ -1,2 +1,2 @@
 🖨│github・info
-nigga
+yapping nya kau
