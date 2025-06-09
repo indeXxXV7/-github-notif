@@ -1,2 +1,2 @@
-# -github-info
+🖨│github・info
 hello cuy
