@@ -1,2 +1,2 @@
 🖨│github・info
-update 
+update
